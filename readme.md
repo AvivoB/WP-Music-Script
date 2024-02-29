@@ -4,5 +4,3 @@
 ### 3° Copy Paste this code here and change your name of file of your music
 
 Endjoy !
-
-C'est gratuit que pour les juifs bisous à tous !
